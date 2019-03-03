@@ -1,0 +1,3 @@
+* In relations to other previous studies by Pavlov, Skinner etc. How does this relate to human
+* a good example is when you go to the doctor for a shot, dr may pull out the needle and say " this wont hurt a bit", dr gave you the shot and it hurt like hell. You then went to the dentist aftwe a week, the dentist pull out a mirror to check you teeth and she said "this wont hurt a bit". Straight away you will get scared even though you know mirror wont hurt you but dr uses the same lime as the other dr.
+* Here we can say the the line : this wont hurt a bit" is your (condition stimulus), hurt is your unconditioning stimulus, and your response was being scared
